@@ -1,1 +1,1 @@
-##### *
+Our place in universe.
